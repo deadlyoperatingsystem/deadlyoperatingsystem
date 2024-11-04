@@ -1,6 +1,6 @@
-𖤐 Leone/Finn/Abba
-he/him
-achillean + asexual + demiromantic
+𖤐 Leone/Finn/Abba -
+he/him - 
+achillean + asexual + demiromantic - 
 I might look scary but I promise I'm not!
 
 <!---
