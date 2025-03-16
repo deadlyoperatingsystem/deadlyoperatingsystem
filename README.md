@@ -1,7 +1,7 @@
 𖤐 Leone/Finn/Abba -
-he/him - 
-achillean + asexual + demiromantic - 
-I might look scary but I promise I'm not!
+he/him - transgender -
+minromantic + asexual + demiromantic - 
+kitty enjoyer :3
 
 <!---
 deadlyoperatingsystem/deadlyoperatingsystem is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
